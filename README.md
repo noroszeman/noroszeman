@@ -21,6 +21,6 @@ Som ziak na SPSE
 ## Skilss
 
 - Anj
-- fighting niggas
+- Nakopávač negrú
 
 # Praca
